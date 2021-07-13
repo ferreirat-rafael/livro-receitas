@@ -4,5 +4,7 @@ Olá, mundo! Sejam bem-vindos ao meu livro de receitas :fireworks:
 
 - Receita de torresmo crocantíssimo
 
+- Receita de Picanha com Farofa e Rúcula
+
   
 
